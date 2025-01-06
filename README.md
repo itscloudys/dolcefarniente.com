@@ -1,5 +1,3 @@
-﻿# dolcefarniente.com
-# dolcefarniente.com
 # dolcefarniente.com
 
 Savor the art of "sweet doing nothing" at Dolce Far Niente, where authentic Italian flavors meet a cozy, inviting atmosphere. From handmade pasta to wood-fired pizzas, experience the heart of Italy in every bite. Buon appetito!
